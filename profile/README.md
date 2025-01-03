@@ -2,7 +2,7 @@
 
 |![movies-hub-mod](https://github.com/user-attachments/assets/a4816e5f-851a-4d8d-9966-3aa525e6f6ef)| 
 |:-------------------------------------------------:|
-[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://modhello.com/)  |
+[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://heyapks.com/movies-hub.html)  |
 | **Platform**: *Android 6.0+*                     
 | **Size**: *50 MB*                                                  
 | **Version**: *2.1.5*    |
@@ -11,7 +11,7 @@
 
 ## What is Movies Hub Premium APK?
 
-## ⬇️ Download Now : https://modhello.com/  📲
+## ⬇️ Download Now : https://heyapks.com/movies-hub.html  📲
 
 Movies Hub Premium APK is a **streaming service** that provides users with access to a massive library of **HD movies** and **TV series**. It allows you to watch all kinds of **media content**, from the latest **movies** to timeless **television series**, all in a sleek, user-friendly interface. The app ensures that users can enjoy **high-definition** and even **4K video** quality, making it an ideal choice for those who appreciate sharp visuals and immersive sound.
 
